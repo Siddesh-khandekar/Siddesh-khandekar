@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Siddesh Khandekar
+- 👀 I’m interested in Digital Marketing Projects.
+- 🌱 I’m currently Pursuing Diploma in Computer Science from CWIT,Pune.
+- 📫 How to reach me 📧 siddesh.204072@gmail.com | Instagram: @Siddesh_khandekar | Twitter: Siddesh_K623 | Linkedin: Siddesh Khandekar
